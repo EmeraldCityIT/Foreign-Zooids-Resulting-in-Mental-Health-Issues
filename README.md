@@ -20,10 +20,12 @@ Forming new habits or traits which are similar to those of the foreign zooid's o
 
 Newly acquired body language, muscle memory or postures similar to those of the foreign zooid's original host or hosts.
 
-Zooids from another host will create a mind state in which the conscious person thinks that they are doing what they want, yet will be emotionally conflicted about making what they feel like may be a bad decision. This is caused by emotional and subconcious urges from foreign zooids living within the body who make decisions which are in their original host's best interests.
+Zooids from another host will create a mind state in which the conscious person thinks that they are doing what they want, yet will be emotionally conflicted about making what they feel like may be a bad decision. This is caused by emotional and subconsciouså urges from foreign zooids living within the body who make decisions which are in their original host's best interests.
 
-This can be used to explain why some victims will return to people who had abused them, as they have living cells in their body which will subconciously urge the victim to return to zooid's original host.
+This can be used to explain why some victims will return to people who had abused them, as they have living cells in their body which will subconsciously urge the victim to return to zooid's original host.
 
 Zooids are able to communicate via chemical connections which are shared between hosts: 
 https://github.com/CoryAndrewHofstad/ANSIBLE-communication-of-zooids-via-shared-chemical-bonds-in-crystalline-structures.
 https://github.com/CoryAndrewHofstad/Pair-theory-doubling-and-quantum-teleportation
+
+This can also explain why members of many evolved species look for the strongest, most stable partner and mate for life. Finding a suitable partner who shares the same logic, interests and goals for the future creates less mental trauma or emotional stress than experimenting with multiple partners who may not have the same intentions or may have no good intentions at all. Mating with individuals who transfer zooids with immoral intentions puts one at risk to subconcious confusion or severe mental disorders which may increase as more zooids are accepted into the system.
