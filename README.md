@@ -24,10 +24,8 @@ Zooids from another host will create a mind state in which the conscious person 
 
 This can be used to explain why some victims will return to people who had abused them, as they have living cells in their body which will subconsciously urge the victim to return to zooid's original host.
 
-Zooids are able to communicate via chemical connections which are shared between hosts: 
-https://github.com/CoryAndrewHofstad/ANSIBLE-communication-of-zooids-via-shared-chemical-bonds-in-crystalline-structures.
-https://github.com/CoryAndrewHofstad/Pair-theory-doubling-and-quantum-teleportation
+Zooids are able to communicate via chemical connections which are shared between hosts: https://github.com/CoryAndrewHofstad/ANSIBLE-communication-of-zooids-via-shared-chemical-bonds-in-crystalline-structures. https://github.com/CoryAndrewHofstad/Pair-theory-doubling-and-quantum-teleportation
 
 This can also explain why members of many evolved species look for the strongest, most stable partner and mate for life. Finding a suitable partner who shares the same logic, interests and goals for the future creates less mental trauma or emotional stress than experimenting with multiple partners who may not have the same intentions or may have no good intentions at all. Mating with individuals who transfer zooids with immoral intentions puts one at risk to subconcious confusion or severe mental disorders which may increase as more zooids are accepted into the system.
 
-This can also be used to explain why in situations where a partner is engaging in infidelity, they may find it easier to lie or cheat on their partner each time they are introduced to additional zooids from the other partner(s). In some cultures, this may be reffered to as "getting turned out", as the consiousness of a person is "turned" into a different Siphonophorae or colony of cells through mixing of zooids from multiple sources which can change the conciousness of one's mindstate.
+This can also be used to explain why in situations where a partner is engaging in infidelity, they may find it easier to lie or cheat on their partner each time they are introduced to additional zooids from the other partner(s). In some cultures, this may be reffered to as "getting turned out", as the consiousness of a person is "turned" into a different Siphonophorae or colony of cells through mixing of zooids from multiple sources which can change the consciousness of one's mind state.
