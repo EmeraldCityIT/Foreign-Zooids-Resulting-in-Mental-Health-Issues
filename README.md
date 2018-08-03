@@ -15,3 +15,9 @@ Stockholm like syndrome, where a victim wants to be attached to the abuser (The 
 Zooids from another host will create a mind state in which the conscious person thinks that they are doing what they want, yet will be emotionally conflicted about making what they feel like may be a bad decision. This is caused by emotional and subconcious urges from foreign zooids living within the body who make decisions which are in their original host's best interests.
 
 This can be used to explain why some victims will return to people who had abused them, as they have living cells in their body which will subconciously urge the victim to return to zooid's original host.
+
+Zooids are able to communicate via chemical connections which are shared between hosts: 
+https://github.com/CoryAndrewHofstad/ANSIBLE-communication-of-zooids-via-shared-chemical-bonds-in-crystalline-structures.
+https://github.com/CoryAndrewHofstad/Pair-theory-doubling-and-quantum-teleportation
+
+
