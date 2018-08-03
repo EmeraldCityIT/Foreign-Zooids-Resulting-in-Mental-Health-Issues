@@ -14,11 +14,11 @@ Stockholm like syndrome, where a victim wants to be attached to the abuser (The 
 
 Saying and doing things that previously were not part of normal speech
 
-Aquiring a new lifestyle or aquiring lifestyle changes similar to that of the foreign zooid's original host or hosts.
+Acquiring a new lifestyle or acquiring lifestyle changes similar to that of the foreign zooid's original host or hosts.
 
-Forming new habits or traits which are similar to those of the foriegn zooid's original host or hosts.
+Forming new habits or traits which are similar to those of the foreign zooid's original host or hosts.
 
-Newly aquired body language, muscle memory or postures similar to those of the forign zooid's original host or hosts.
+Newly acquired body language, muscle memory or postures similar to those of the foreign zooid's original host or hosts.
 
 Zooids from another host will create a mind state in which the conscious person thinks that they are doing what they want, yet will be emotionally conflicted about making what they feel like may be a bad decision. This is caused by emotional and subconcious urges from foreign zooids living within the body who make decisions which are in their original host's best interests.
 
@@ -27,5 +27,3 @@ This can be used to explain why some victims will return to people who had abuse
 Zooids are able to communicate via chemical connections which are shared between hosts: 
 https://github.com/CoryAndrewHofstad/ANSIBLE-communication-of-zooids-via-shared-chemical-bonds-in-crystalline-structures.
 https://github.com/CoryAndrewHofstad/Pair-theory-doubling-and-quantum-teleportation
-
-
