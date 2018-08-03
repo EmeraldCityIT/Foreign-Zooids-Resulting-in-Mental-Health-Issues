@@ -29,3 +29,5 @@ https://github.com/CoryAndrewHofstad/ANSIBLE-communication-of-zooids-via-shared-
 https://github.com/CoryAndrewHofstad/Pair-theory-doubling-and-quantum-teleportation
 
 This can also explain why members of many evolved species look for the strongest, most stable partner and mate for life. Finding a suitable partner who shares the same logic, interests and goals for the future creates less mental trauma or emotional stress than experimenting with multiple partners who may not have the same intentions or may have no good intentions at all. Mating with individuals who transfer zooids with immoral intentions puts one at risk to subconcious confusion or severe mental disorders which may increase as more zooids are accepted into the system.
+
+This can also be used to explain why in situations where a partner is engaging in infidelity, they may find it easier to lie or cheat on their partner each time they are introduced to additional zooids from the other partner(s). This is how people get "turned out"...
